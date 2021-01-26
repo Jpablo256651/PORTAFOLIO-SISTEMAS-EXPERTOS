@@ -1,1 +1,4 @@
 # PORTAFOLIO-SISTEMAS-EXPERTOS
+
+CARPETA COMPARTIDA Y APUNTES
+https://drive.google.com/drive/u/1/folders/1Il07S8r-gvOmAUWGE0RGg8_OCKZOI0no
